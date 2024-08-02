@@ -1,2 +1,2 @@
 # BGMI DDOS
-# By HACKER SPLOIT @Hackersploit_tg
+# By @Itz_mohan_700
